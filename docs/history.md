@@ -52,3 +52,6 @@ This page is an informal record of Fragments of Temuair's player history. I (Eri
 - Pablito dealt the final blow to Law and release Temuair from The Rift.
 - Many players from Order of the Seraph and Melmacian stop playing the game.
 
+## Deoch 11
+
+- Lone priestess Laeh solos her way to the mid 70s before being discovered. After subbing to wizard and becoming a scholar she again solos until mid 70s. She masters her first character.

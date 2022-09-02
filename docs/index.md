@@ -14,6 +14,10 @@ If you are new to the game, please consider reading the [Getting Started Guide](
 
 ## News
 
+**2022-09-02**
+
+After a lengthy hiatus new aislings begun discovering Fragments. A few aislings return to activity.
+
 **2021-10-10**
 
 It is now Deoch 4 and Medenia has been released!
